@@ -1,0 +1,5 @@
+- 👋 Hai,I’m @LilKatie
+- 👀 I’m interested in the exploration of the digital and physical universe alike
+- 🌱 I’m currently learning to refine my skills,aswell as reducing the errors in my current habitual patterns in plan to Excel in my Career
+- 💞️ Willing to collaborate on computer based soft/hardware projects in order to learn all the intricacies of the many programming languages i plan to learn
+- 📫 Reach me @;(Email:xLilKatie999KjS@protonmail.com,#:814-888-8974,Ig:@Lilkatie.999)
